@@ -1,6 +1,6 @@
 # CV-Yesenia-Larenas
 
 ### Datos de contacto
-Yesenia Andreina Larenas Ruíz, CI: V-30293262
+Yesenia Andreina Larenas Ruíz
 yesianlarenas@gmail.com
 +58 424 96223027
